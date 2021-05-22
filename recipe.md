@@ -1,0 +1,1 @@
+take a pizza base adding pizza sause and tomato ketchup adding cheese cutting tomato, onion and capsicum 
